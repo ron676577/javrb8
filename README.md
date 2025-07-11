@@ -27,4 +27,4 @@
 结语  
 选择一个高质量的日本AV资源平台将为你的观影体验加分，确保安全、流畅、无广告的观看。通过这些平台，您可以享受高品质的内容，同时不必担心安全问题。  
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/ron676577/javrb8 )</span>
